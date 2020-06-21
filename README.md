@@ -2,3 +2,4 @@
 P.S. The recommendation made here is not an end policy suggestion per se. It can be taken as an 'agenda-setting' initiative
 ####                                  A comparative picture of different factors
 ![](relief.jpg)
+[Click Here for Better Image](https://drive.google.com/file/d/1jww423vu3t1RtmwGYtCNLy4PQRAyAF89/view?usp=sharing)
